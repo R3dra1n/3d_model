@@ -7,3 +7,4 @@
 
 欢迎大家自行3D打印
 
+![image](https://github.com/R3dra1n/PKU_boyaTower/blob/main/IMG_2420.jpeg)
