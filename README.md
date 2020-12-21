@@ -9,4 +9,4 @@
 
 ![image](https://github.com/R3dra1n/PKU_boyaTower/blob/main/IMG_2420.jpeg)
 ![image](https://github.com/R3dra1n/PKU_boyaTower/blob/main/IMG_2419.jpeg)
-![image](https://github.com/R3dra1n/PKU_boyaTower/blob/main/IMG_2421.jpeg)
+![image](https://github.com/R3dra1n/PKU_boyaTower/blob/main/IMG_2418.jpeg)
